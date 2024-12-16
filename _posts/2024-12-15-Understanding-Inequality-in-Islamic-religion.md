@@ -4,7 +4,7 @@ Title: “Understanding Inequality in Islamic religion”
 ---
 
 ## Introduction
-Hey there! I am Caleb and i will be doing this blog as a final project as instructed by my professor Dr.Danielle Dubois in the a Women and Religion course and using what've learned i will be ding a blog based on the question "Is Inequality in Islamic religion supported or rejected?",this particular question i'm sure has crossed alot of your minds at some point so join me as i dissect what this means and break down this statement. 
+Hey there! I am Caleb and I will be doing this blog as a final project as instructed by my professor Dr. Danielle Dubois in the Women and Religion course by using what've learned i will be doing a blog based on the question "Is Inequality in Islamic religion supported or rejected?", this particular question i'm sure has crossed a lot of your minds at some point, so join me as I dissect what this means and break down this statement. 
 
 ## Hypothesis
 When discussing if the Islamic religion supports or rejects equality towards women,as a student in this religion course I have battled with this question in my learning this course and I’m sure a lot of people have questions about it,  when looking at the Islamic religion there is a lot of speculations that women are being oppressed in the Islamic tradition and I would like to use this blog to understand these oppressions and to find out the role of women in the Quran and if it is supported or rejected.
